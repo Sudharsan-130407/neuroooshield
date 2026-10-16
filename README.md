@@ -1,0 +1,2 @@
+# neuroooshield
+for stroke people 
